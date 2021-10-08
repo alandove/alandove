@@ -1,0 +1,1 @@
+Hi, I'm @alandove, aka columbiform, alanine, and probably a few other aliases I've forgotten about. In my day job I'm a science journalist and podcaster. Programming has been an off-and-on hobby for me ever since my parents brought home a brand new Apple II+ in 1983, which both dates me and sets unreasonable expectations for my current skill level.
